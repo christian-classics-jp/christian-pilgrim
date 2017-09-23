@@ -1,30 +1,32 @@
+# キリスト者の巡礼　天に向かう旅としての真実なクリスチャン生活
+
 The Christian Pilgrim
-
 or
-
 The True Christian's Life a Journey Toward Heaven
-
 by
-
- Jonathan Edwards
- (1703-1758)
-
+Jonathan Edwards(1703-1758)
 Dated September, 1733
+ジョナサン・エドワーズ（1703-1758）
 
-
+1733年9月
 
 "And confessed that they were strangers and pilgrims on the earth. For they that say such things, declare plainly that they seek a country." -- Hebrews 11:13, 14
-
+「地上では旅人であり寄留者であることを告白していたのです。彼らはこのように言うことによって、自分の故郷を求めていることを示しています。」（ヘブル11:13-14）
 
 Subject: This life ought so to be spent by us as to be only a journey towards heaven.
+主題「このいのちはただ天に向かう旅となるように過ごすべきである」
 
 The apostle is here setting forth the excellencies of the grace of faith, by the glorious effects and happy issue of it in the saints of the Old Testament. He had spoken in the preceding part of the chapter particularly, of Abel, Enoch, Noah, Abraham, and Sarah, Isaac, and Jacob. Having enumerated those instances, he takes notice that “these all died in faith, not having received the promises, but having seen them afar off, were persuaded of them, and embraced them, and confessed that they were strangers,” etc. — In these words the apostle seems to have a more particular respect to Abraham and Sarah, and their kindred, who came with them from Haran, and from Ur of the Chaldees, as appears by the 15th verse, where the apostle says, “and truly if they had been mindful of that country from whence they came out, they might have had opportunity to have returned.”
+この箇所で使徒は、旧約聖書の聖徒たちの信仰に言及し、その栄光に富んだ影響と幸福な結果によって、信仰の恵みの卓越性を強調しています。使徒はその章の前半で特に、アベル、エノク、ノア、アブラハム、サラ、イサク、ヤコブについて語りました。それらの例を数え上げて、次の注意を与えました。「これらの人々はみな、信仰の人々として死にました。約束のものを手に入れることはありませんでしたが、はるかにそれを見て喜び迎え、地上では旅人であり寄留者であることを告白していたのです。」（ヘブル11:13）これらの言葉の中で使徒はアブラハムとサラとその親族に特別な尊敬を寄せているようです。彼らはハランから、またカルデアのウルから出て行きましたが、十五節で使徒が語っているとおり、「もし、出て来た故郷のことを思っていたのであれば、帰る機会はあったでしょう。」（ヘブル11:15）
 
 Two things may be observed here:
+ここで、二つの事実が観察されます。
 
-1. What these saints confessed of themselves, viz. that they were strangers and pilgrims on the earth. — Thus we have a particular account concerning Abraham, “I am a stranger and a sojourner with you.” (Gen. 23:4) And it seems to have been the general sense of the patriarchs, by what Jacob says to Pharaoh. “And Jacob said to Pharaoh, The days of the years of my pilgrimage are an hundred and thirty years; few and evil have the days of years of my life been, and have not attained to the days of the years of the life of my fathers in the days of their pilgrimage.” (Gen. 47:9) “I am a stranger and a sojourner with thee, as all my fathers were.” (Psa. 39:12)
+1 What these saints confessed of themselves, viz. that they were strangers and pilgrims on the earth. — Thus we have a particular account concerning Abraham, “I am a stranger and a sojourner with you.” (Gen. 23:4) And it seems to have been the general sense of the patriarchs, by what Jacob says to Pharaoh. “And Jacob said to Pharaoh, The days of the years of my pilgrimage are an hundred and thirty years; few and evil have the days of years of my life been, and have not attained to the days of the years of the life of my fathers in the days of their pilgrimage.” (Gen. 47:9) “I am a stranger and a sojourner with thee, as all my fathers were.” (Psa. 39:12)
+（一）　聖徒たちは自身をどのように告白していたか。すなわち、地上では旅人であり寄留者であると告白していました。アブラハムは特にこう言っています。「私はあなたがたの中に居留している異国人です」（創世記23:4）。イスラエルの父祖たちはみな同様だったようです。ヤコブはパロに言いました。「私のたどった（my pilgrimage：寄留）年月は百三年です。私の齢の年月はわずかで、ふしあわせで、私の先祖のたどった齢の年月には及びません。」（創世記47:9）「私はすべての先祖たちのように、寄留の者なのです。」（詩篇39:12）
 
-2. The inference that the apostle draws from hence, viz. that they sought another country as their home. “For they that say such things, declare plainly that they seek a country.” In confessing that they were strangers, they plainly declared that this is not their country; that this is not the place where they are at home. And in confessing themselves to be pilgrims, they declared plainly that this is not their settled abode, but that they have respect to some other country, which they seek, and to which they are traveling.
+2 The inference that the apostle draws from hence, viz. that they sought another country as their home. “For they that say such things, declare plainly that they seek a country.” In confessing that they were strangers, they plainly declared that this is not their country; that this is not the place where they are at home. And in confessing themselves to be pilgrims, they declared plainly that this is not their settled abode, but that they have respect to some other country, which they seek, and to which they are traveling.
+（二）　そのことから使徒はどう推論しているか。すなわち、彼らは地上の故郷とは違う国を求めていた、ということです。「彼らはこのように言うことによって、自分の故郷を求めていることを示しています。」（ヘブル11:14）彼らは旅人であることを告白することで、地上が彼らの国ではなく、安住できる故郷でないことを端的に宣言しています。また彼らは寄留者であることを告白することによって、地上が定住すべき場所ではなく、彼らは別の国を慕い、求めており、そこに向かって旅していることを端的に宣言しています。
 
 SECTION I
 
