@@ -111,7 +111,10 @@ God is the highest good of the reasonable creature, and the enjoyment of him is 
 — Therefore it becomes us to spend this life only as a journey towards heaven, as it becomes us to make the seeking of our highest end and proper good, the whole work of our lives, to which we should subordinate all other concerns of life. Why should we labor for, or set our hearts on anything else, but that which is our proper end, and true happiness?
 それゆえこの世の生をただ天に至る旅として過ごすことが私たちにふさわしく、私たちの至高の目的と正しい善を求めることを人生の働きとして他のすべての関心事をそれに従属させることが私たちにふさわしいのです。私たちの正しい目的と本当の幸福を差し置いて、どうして他のことに心を砕き労苦するべきでしょうか。
 
-4 Our present state, and all that belongs to it, is designed by him that made all things, to be wholly in order to another world. — This world was made for a place of preparation for another. Man’s mortal life was given him, that he might be prepared for his fixed state. And all that God has here given us, is given to this purpose. The sun shines, the rain falls upon us, and the earth yields her increase to us for this end. Civil, ecclesiastical, and family affairs, and all our personal concerns, are designed and ordered in subordination to a future world, by the maker and disposer of all things. To this therefore they ought to be subordinated by us.
+4 Our present state, and all that belongs to it, is designed by him that made all things, to be wholly in order to another world. — This world was made for a place of preparation for another. Man’s mortal life was given him, that he might be prepared for his fixed state.
+（四）　私たちの現在の状態とそれに付随するいっさいのものは、別の世に完全に服するようにと神がご計画されました。この世は次の世の準備の場所として造られました。死ぬべきいのちが人に与えられたのは、永遠の状態の準備のためです。
+And all that God has here given us, is given to this purpose. The sun shines, the rain falls upon us, and the earth yields her increase to us for this end. Civil, ecclesiastical, and family affairs, and all our personal concerns, are designed and ordered in subordination to a future world, by the maker and disposer of all things. To this therefore they ought to be subordinated by us.
+神がこの世で与えてくださるあらゆるものはこの目的のためです。太陽が輝き、雨が私たちの上に降り、大地が産み出すのもこの目的のためです。国家も教会も家族も個人的な関心事も、万物を造り配置なさった方によって、未来の世に従属するものとして計画され秩序付けられています。それゆえそれらも私たちの手で未来の世に従属させられます。
 
 SECTION III
 
