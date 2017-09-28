@@ -146,14 +146,21 @@ Yea, those who are converted have now a further reason to strive for grace. For 
 そうです、回心した者には今や恵みを得るために奮闘するさらなる理由があります。彼らはその恵みの素晴らしさを垣間見たのですから。カナンの祝福を一度味わった者には、以前よりもさらに懸命に進む理由があります。回心した者は「召しと選びを確かなものにする」ために奮闘すべきです。回心した者がみな確信しているわけではありませんし、確信している者が常にそうであると知っているわけではありません。むしろ今もなお、さらなる誠実さをもって神を求め神に仕えることが、保証をいただきそれを維持する方法です。
 
 SECTION IV
+## 第四部
 
 An exhortation so to spend the present life, that it may only be a journey towards heaven
+人生をひたすら天に至る旅として過ごす勧め。
 
 Labor to obtain such a disposition of mind that you may choose heaven for your inheritance and home, and may earnestly long for it and be willing to change this world, and all its enjoyments, for heaven. Labor to have your heart taken up so much about heaven, and heavenly enjoyments, as that you may rejoice when God calls you to leave your best earthly friends and comforts for heaven, there to enjoy God and Christ.
+あなたの相続分と故郷のために天を選べぶことができ、天を熱心に待ち望み、天のためにこの世とこの世の楽しみを喜んで変えることができるような心の性向を得るために労してください。神があなたを召して地上にいる最高の友と慰藉とを天のために去らせるときに喜べるように、天と天の楽しみをいつも心に抱くように労してください。天では神とキリストとを楽しむようになるのですから。
 
 Be persuaded to travel in the way that leads to heaven: viz. in holiness, self-denial, mortification, obedience to all the commands of God, following Christ’s example [and] in a way of a heavenly life, or imitation of the saints and angels in heaven. Let it be your daily work, from morning till night, and hold out in it to the end. Let nothing stop or discourage you, or turn you aside from this road. And let all other concerns be subordinated to this. Consider the reasons that have been mentioned why you should thus spend your life: that this world is not your abiding place, that the future world is to be your everlasting abode, and that the enjoyments and concerns of this world are given entirely in order to another. And consider further for motive.
+天に至る道を旅することを承諾してください。すなわち、聖なる生活、自己否定、禁欲、神のすべての命令に対する従順、キリストの模範に従うこと、天的な生き方、天にいる聖徒たちと御使いに見習うことです。それを朝から晩まで日々の仕事とし、終わりまでしっかりとやり遂げてください。他の全ての関心事はそれに従属させてください。どうしてそのように生きるべきなのか、これまで言及した理由についてよくお考えください。この世は定住の地ではなく、未来の世が永遠の永住地であり、この世の楽しみと関心事は全部、未来の世のためにあるのです。踏み出す力を得るためにさらによくお考えください。
 
-1 How worthy is heaven that your life should be wholly spent as a journey towards it. — To what better purpose can you spend your life, whether you respect your duty or your interest? What better end can you propose to your journey, than to obtain heaven? You are placed in this world with a choice given you, that you may travel which way you please, and one way leads to heaven. Now, can you direct your course better than this way? All men have some aim or other in living. Some mainly seek worldly things. They spend their days in such pursuits. But is not heaven, where is fullness of joy forever, much more worthy to be sought by you? How can you better employ your strength, use your means, and spend your days, than in traveling the road that leads to the everlasting enjoyment of God: to his glorious presence, to the new Jerusalem, to the heavenly mount Zion, where all your desires will be filled and no danger of ever losing your happiness? — No man is at home in this world, whether he choose heaven or not: here he is but a transient person. Where can you choose your home better than in heaven?
+1 How worthy is heaven that your life should be wholly spent as a journey towards it. — To what better purpose can you spend your life, whether you respect your duty or your interest? What better end can you propose to your journey, than to obtain heaven? You are placed in this world with a choice given you, that you may travel which way you please, and one way leads to heaven. Now, can you direct your course better than this way? All men have some aim or other in living. Some mainly seek worldly things. They spend their days in such pursuits.
+（一）　あなたの人生すべてを天に向かう旅として捧げることはどれほど価値があることでしょうか。それにまさる人生の目的があるでしょうか。義務と関心事のどちらを尊重すべきでしょうか。天を得ることの他にどんな望ましい旅の結末があるでしょうか。あなたはこの世にあって、自分の喜びのために旅するか、天に至る旅をするか、選択が与えられています。この道よりも良い行程が他にあるでしょうか。どんな人にでも何がしか人生の目的があるものです。ある人はこの世的なものを求めています。この世的なものを追求して人生を過ごします。
+But is not heaven, where is fullness of joy forever, much more worthy to be sought by you? How can you better employ your strength, use your means, and spend your days, than in traveling the road that leads to the everlasting enjoyment of God: to his glorious presence, to the new Jerusalem, to the heavenly mount Zion, where all your desires will be filled and no danger of ever losing your happiness? — No man is at home in this world, whether he choose heaven or not: here he is but a transient person. Where can you choose your home better than in heaven?
+けれども、あなたが求めるべきもの、遥かに価値のあるものは、永遠の喜びに満たされている天ではないでしょうか。永遠に続く神の楽しみに至る道を旅することの他にあなたの力を注ぎ、知恵を尽くし、日々を費やすにふさわしいものがあるでしょうか。神の栄光に富んだ臨在、新しいエルサレム、天にあるシオンの山の他にもっと良いものがあるでしょうか。そこではあなたの願いはかなえられ、あなたの幸福が失われる危険はありません。どんな人にとってもこの世は故郷ではありません。天を選ぶにせよ選ばばないにせよ、ここでは旅行者にすぎません。天の他にさらにすぐれた故郷を選び得るでしょうか。
 
 2 This is the way to have death comfortable to us. — To spend our lives so as to be only a journeying towards heaven, is the way to be free from bondage and to have the prospect and forethought of death comfortable. Does the traveler think of his journey’s end with fear and terror? Is terrible to him to think that he has almost got to his journey’s end? Were the children of Israel sorry after forty years’ travel in the wilderness, when they had almost got to Canaan? This is the way to be able to part with the world without grief. Does it grieve the traveler when he has got home, to quit his staff and load of provisions that he had to sustain him by the way?
 
@@ -172,12 +179,3 @@ I shall conclude by giving a few directions:
 3 Seek heaven only by Jesus Christ. — Christ tells us that he is the way, and the truth, and the life. (John 14:6) He tells us that he is the door of the sheep. “I am the door, by me if any man enter in he shall be saved; and go in and out and find pasture.” (John 10:9) If we therefore would improve our lives as a journey towards heaven, we must seek it by him and not by our own righteousness, as expecting to obtain it only for his sake: looking to him [and] having our dependence on him, who has procured it for us by his merit. And expect [that] strength to walk in holiness, the way that leads to heaven, only from him.
 
 4 Let Christians help one another in going this journey. — There are many ways whereby Christians might greatly forward one another in their way to heaven, as by religious conference, etc. Therefore let them be exhorted to go this journey as it were in company: conversing together, and assisting one another. Company is very desirable in a journey, but in none so much as this. — Let them go united and not fall out by the way, which would be to hinder one another, but use all means they can to help each other up the hill. — This would ensure a more successful traveling and a more joyful meeting at their Father’s house in glory.
-Added to Bible Bulletin Board's Jonathan Edwards Collection by:
-
-Tony Capoccia
-Bible Bulletin Board
-Box 119
-Columbus, New Jersey, USA, 08022
-Our websites: www.biblebb.com and www.gospelgems.com
-Email: tony@biblebb.com
-Online since 1986
