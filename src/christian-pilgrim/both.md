@@ -11,10 +11,10 @@ Dated September, 1733
 ジョナサン・エドワーズ（1703-1758） 1733年9月
 
 "And confessed that they were strangers and pilgrims on the earth. For they that say such things, declare plainly that they seek a country." -- Hebrews 11:13, 14
-「地上では旅人であり寄留者であることを告白していたのです。彼らはこのように言うことによって、自分の故郷を求めていることを示しています。」（ヘブル11:13-14）
+> 地上では旅人であり寄留者であることを告白していたのです。彼らはこのように言うことによって、自分の故郷を求めていることを示しています。（ヘブル11:13-14）
 
 Subject: This life ought so to be spent by us as to be only a journey towards heaven.
-主題「この人生はただひたすら天に向かう旅とすべきである」
+**主題「この人生はただひたすら天に向かう旅とすべきである」**
 
 The apostle is here setting forth the excellencies of the grace of faith, by the glorious effects and happy issue of it in the saints of the Old Testament. He had spoken in the preceding part of the chapter particularly, of Abel, Enoch, Noah, Abraham, and Sarah, Isaac, and Jacob. Having enumerated those instances, he takes notice that “these all died in faith, not having received the promises, but having seen them afar off, were persuaded of them, and embraced them, and confessed that they were strangers,” etc. — In these words the apostle seems to have a more particular respect to Abraham and Sarah, and their kindred, who came with them from Haran, and from Ur of the Chaldees, as appears by the 15th verse, where the apostle says, “and truly if they had been mindful of that country from whence they came out, they might have had opportunity to have returned.”
 この聖書箇所で使徒は、旧約聖書の聖徒たちの信仰に言及し、信仰という恵みの素晴らしさを強調しています。信仰がもたらす栄光に富んだ幸福な結末を語っています。使徒はその章の前半で特に、アベル、エノク、ノア、アブラハム、サラ、イサク、ヤコブについて語りました。それらの例を数え上げて、次の注意を与えました。「これらの人々はみな、信仰の人々として死にました。約束のものを手に入れることはありませんでしたが、はるかにそれを見て喜び迎え、地上では旅人であり寄留者であることを告白していたのです。」（ヘブル11:13）この言葉の中で使徒は、アブラハムとサラとその親族に特別な敬意を払っているようです。彼らはハランから、またカルデアのウルから出て行きましたが、十五節で使徒が語っているとおり、「もし、出て来た故郷のことを思っていたのであれば、帰る機会はあったでしょう。」（ヘブル11:15）
@@ -125,7 +125,7 @@ Instruction afforded by the consideration, that life is a journey or pilgrimage,
 1 THIS doctrine may teach us moderation in our mourning for the loss of such dear friends, who while they lived, improved their lives to right purposes. If they lived a holy life, then their lives were a journey towards heaven. And why should we be immoderate in mourning, when they are got to their journey’s end? Death, though it appears to us with a frightful aspect, is to them a great blessing. Their end is happy, and better than their beginning. “The day of their death, is better than the day of their birth.” (Ecc. 7:1) While they lived, they desired heaven, and chose it above this world or any of its enjoyments. For this they earnestly longed, and why should we grieve that they have obtained it? — Now they have got to their Father’s house. They find more comfort a thousand times now [that] they are gone home, than they did in their journey. In this world they underwent much labor and toil: it was a wilderness they passed through. There were many difficulties in the way: mountains and rough places. It was laborious and fatiguing to travel the road, and they had many wearisome days and nights: but now they have got to their everlasting rest. “And I heard a voice from heaven, saying unto me, Write, blessed are the dead which die in the Lord from henceforth: yea, saith the Spirit, that they may rest from their labors; and their works do follow them.” (Rev. 14:13) They look back upon the difficulties, and sorrows, and dangers of life, rejoicing that they have surmounted them all.
 （一）　親しい友人が亡くなったとき、その人が正しい目的に生涯をささげたと知っていれば、この教えは悲しみを和らげてくれます。友が聖なる生き方をしたのなら、その生涯は天に向かう旅だったと言えます。その旅の目的地に着いたのですから、どうしていつまでも悲しみに暮れる必要がありましょうか。死は恐ろしい面もあるように思えますが、彼らにとって大きな祝福です。彼らの終わりは幸福で、始めよりも良いものです。「死の日は生まれる日にまさる。」（伝道7:1）生きている間、彼らは天を願い、この世にもこの世の楽しみにもまさって天を選びました。天を熱心に待ち望んだ彼らがついにそれを得たのですから、どうして嘆く必要がありましょうか。今や彼らは父の家に着いたのです。故郷に着いたのですから、旅していた時よりも千倍の慰めを見出しています。彼らはこの世で多くの労苦を味わいました。荒野の通り抜けてきました。道すがら多くの困難にあいました。山々や荒地を通ってきました。辛く骨の折れる道を旅し、へとへとに疲れる日夜を過ごしました。けれども今、永遠の休息を得たのです。
 
-また私は、天からこう言っている声を聞いた。「書きしるせ。『今から後、主にあって死ぬ死者は幸いである。』」御霊も言われる。「しかり。彼らはその労苦から解き放されて休むことができる。彼らの行いは彼らについて行くからである。」（黙示録14:13）
+> また私は、天からこう言っている声を聞いた。「書きしるせ。『今から後、主にあって死ぬ死者は幸いである。』」御霊も言われる。「しかり。彼らはその労苦から解き放されて休むことができる。彼らの行いは彼らについて行くからである。」（黙示録14:13）
 
 彼らはその生涯に出会った困難や悲しみや危険を思い返して、そのすべてに打ち勝ってきたことを喜んでいます。
 
